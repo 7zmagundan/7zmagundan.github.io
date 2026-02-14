@@ -1,0 +1,1 @@
+# 7zmagundan.github.io
